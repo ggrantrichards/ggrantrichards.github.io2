@@ -1,1 +1,0 @@
-# ggrantrichards.github.io
